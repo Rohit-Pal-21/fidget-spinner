@@ -1,2 +1,2 @@
-# fidget-spinner ghumte rehe jaoge
+# fidget-spinner ghumate rehe jaoge
 # created by Rohit Pal
